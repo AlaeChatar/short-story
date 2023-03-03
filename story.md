@@ -11,3 +11,5 @@ De eerste dag gaf Lily het boeketje aan Ava en zei: "Hier, ik heb wat bloemen vo
 Ze raakten bevriend en Lily leerde Ava alles over bloemen en tuinieren. Samen plukten ze bloemen en maakten ze bloemenkransen. Lily was zo blij dat ze een nieuwe vriend had en dat ze haar liefde voor bloemen kon delen.
 
 En zo gingen Lily en Ava samen door het leven, genietend van elkaars gezelschap en de schoonheid van de bloemen om hen heen.
+
+![alt text](https://www.gardendesign.com/pictures/images/675x529Max/site_3/helianthus-yellow-flower-pixabay_11863.jpg)
