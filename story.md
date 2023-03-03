@@ -1,6 +1,7 @@
 # Bloemen
 Auteur: _Alae Chatar_
 
+
 Er was eens een klein meisje genaamd Lily, die dol was op bloemen. Elke ochtend plukte ze een boeketje bloemen uit de tuin van haar moeder en bracht ze naar haar juf op school.
 
 Op een dag ontdekte Lily dat er een nieuw meisje in haar klas zat genaamd Ava. Ava was heel verlegen en maakte moeilijk vrienden. Lily besloot dat ze Ava zou helpen en elke dag een extra boeketje bloemen voor haar zou plukken.
